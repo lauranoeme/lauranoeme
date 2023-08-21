@@ -1,0 +1,2 @@
+- 👋 Oie! Sou a @lauranoeme, atualmente estou estudando análise e desenvolvimento de sistemas, já tenho alguns cursos na área de TI e de pouco em pouco estou praticando tudo que aprendi até aqui!
+- Pode entrar em contato comigo pelo meu e-mail: lauranoemem@gmail.com
